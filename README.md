@@ -1,4 +1,4 @@
-Name : K.chandana
+Name : K.Chandana
 company name : AENEXZ TECH PRIVATE LIMITED 
 
 ✅ Project Summary
